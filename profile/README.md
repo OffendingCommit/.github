@@ -11,5 +11,6 @@
 
 **Useful Links:**
 * 🍪 _For my meal planning peeps_ [August 2022 Meal Calendar](https://drive.google.com/file/d/1Q9CprZr_w_t9BBgWV3CP67pQepUFRWcM/view)
+* [**Checkout this Discord**](https://discord.gg/nS6Yg6qwsK)
 
 > Stay tuned to this page, I will be posting more updates here from time to time!
