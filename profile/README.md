@@ -1,7 +1,7 @@
 ## 👋 Hi, I'm OffendingCommit!
 
 **Who am I?**
-* I'm currently 3️⃣7️⃣ trips around the Sun.
+* I'm currently 38 trips around the Sun.
 * 🍖 Love grilling and BBQ.
 * 🎉 I have ADHD!
 * 💻 I'm a DevOps Engineer!
